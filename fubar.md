@@ -1,3 +1,2 @@
-"This is what Bob & Carol did on Carol's computer when working on the first feature."
-
-Sometimes people poop.
+"This is what Bob & Carol did on Bob's computer when working on the first feature"
+Why does a squirrel swim on his back...... to keep his nuts dry!
